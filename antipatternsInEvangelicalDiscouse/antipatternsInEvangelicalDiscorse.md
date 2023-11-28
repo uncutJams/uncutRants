@@ -19,4 +19,6 @@ I'm hoping if you're a writer or speaker of any dispossession this will help you
 
 The first annoying pattern - unjustified upset. What do I mean by this? Insulting, denigrating, desparaging a position - without giving any reasoning against it.
 
+It might be a simple insult - calling a group of philosophers a "club of smug Cambridge elite"<sup>1</sup>
+
 Well, it's something like poisoning the well, or mudslinging - but a little broader, and I don't know if it was intentional. 
