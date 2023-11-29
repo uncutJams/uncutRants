@@ -5,7 +5,10 @@
 
 > This is how you get to heaven - know that your life is deathly and disgusting and you will find no joy in it outside of Jesus; know secondly that where you are headed is an eternal hell for the punishments of your sins; know thirdly that the father has in love given his son to give you eternal life in grace; and then lastly know that this eternal life is in Jesus Christ.
 
-I found both the overall message of the sermon, and the details throughout it, to be unfounded and emotionally manipulative. I've tried to step through it and outline in what ways I found it to be so.
+I found both the overall message of the sermon, and the details throughout it, to be unfounded and emotionally manipulative. I've tried to step through it and outline in what ways I found it to be so. I wanted to publish these thoughts, because:
+
+1. As the pastor of a church, a speaker on a YouTube channel, and the president of a group of churches, Tom does have a bit of a sphere of influence, and I'm worried this could cause harm within that sphere;
+2. I think this message and this mode of delivery is not exclusive to Tom, but is a pattern within some subsets of conservative evangelicalism.
 
 ## Critique
 
