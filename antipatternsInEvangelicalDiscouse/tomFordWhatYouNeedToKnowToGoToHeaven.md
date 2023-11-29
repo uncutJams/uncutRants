@@ -1,6 +1,13 @@
-# Tom Foord
+# What You Need To Know To Go To Heaven - Critique
 
-[What You Need To Know To Go To Heaven | Romans 6:23 | Tom Foord](https://www.youtube.com/watch?v=deaFSi-9bX4&list=WL&index=3&ab_channel=HopeReformedBaptistChurch)
+## Summary
+[What You Need To Know To Go To Heaven | Romans 6:23](https://www.youtube.com/watch?v=deaFSi-9bX4&list=WL&index=3&ab_channel=HopeReformedBaptistChurch) is a sermon by Tom Foord, a conservative, evangelical, baptist pastor who's the president of the [Fellowship of Evangelical Churches of Australia](https://feca.org.au/our-team). He sums up the sermon pretty well himself:
+
+> This is how you get to heaven - know that your life is deathly and disgusting and you will find no joy in it outside of Jesus; know secondly that where you are headed is an eternal hell for the punishments of your sins; know thirdly that the father has in love given his son to give you eternal life in grace; and then lastly know that this eternal life is in Jesus Christ.
+
+I found both the overall message of the sermon, and the details throughout it, to be unfounded and emotionally manipulative. I've tried to step through it and outline in what ways I found it to be so.
+
+## Critique
 
 > Tonight's aim and tonight's goal is to show us and ensure that everybody… knows the path from here to heaven with the Lord Jesus Christ… I'm not trying to do anything underhanded, I'm not trying to trick you - tonight's stated aim if you are outside of the Lord Jesus Christ .. is that you would behold the Lord Jesus Christ in his gospel and get saved and escape hell…
 
